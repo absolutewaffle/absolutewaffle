@@ -1,2 +1,2 @@
 - the coolest guy who knows a little bit of python.
-- contact me on discord at waffle#0001
+- i dont know any other languages i am sobbing and weeping profusely
